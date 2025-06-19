@@ -36,3 +36,48 @@
 |Garuda Error System|https://t.me/+ZMoidrbayTgyMzQ9|||
 |Cyber Jihad Movement|https://t.me/CyberJihadMovement|||
 |Coup Team|https://t.me/CoupTeam|||
+|Cyber Islamic Resistance|***enter the Telegram channel link here***|||
+|Fredens|***enter the Telegram channel link here***|||
+|Liwaa Mohammad|***enter the Telegram channel link here***|||
+|#OpIsrael|***enter the Telegram channel link here***|||
+|Lulzsec Black|***enter the Telegram channel link here***|||
+|Freedom Cyber Op|***enter the Telegram channel link here***|||
+|Blackswamp|***enter the Telegram channel link here***|||
+|Cyberjund|***enter the Telegram channel link here***|||
+|Fad Team|***enter the Telegram channel link here***|||
+|R-9X|***enter the Telegram channel link here***|||
+|Serverkillers|***enter the Telegram channel link here***|||
+|Legion|***enter the Telegram channel link here***|||
+|Assasins ZXR|***enter the Telegram channel link here***|||
+|Spider X|***enter the Telegram channel link here***|||
+|Team Azrael|***enter the Telegram channel link here***|||
+|Evil Morocco|***enter the Telegram channel link here***|||
+|Shadow Cyber Unit|***enter the Telegram channel link here***|||
+|Mysterious Team|***enter the Telegram channel link here***|||
+|IranianCybers|***enter the Telegram channel link here***|||
+|Rootsec|***enter the Telegram channel link here***|||
+|Al-Qassam Cyber Brigades|***enter the Telegram channel link here***|||
+|AGLegends|***enter the Telegram channel link here***|||
+|Unknowns Cyber Team|***enter the Telegram channel link here***|||
+|Anonymous Sana'a|***enter the Telegram channel link here***|||
+|Dark Storm Team|***enter the Telegram channel link here***|||
+|APT404|***enter the Telegram channel link here***|||
+|Golden Falcon|***enter the Telegram channel link here***|||
+|Pars Cyber|***enter the Telegram channel link here***|||
+|TengkorakCyberCrewz|***enter the Telegram channel link here***|||
+|Bavar373|***enter the Telegram channel link here***|||
+|GhostIran|***enter the Telegram channel link here***|||
+|Gckul|***enter the Telegram channel link here***|||
+|FreePalestine|***enter the Telegram channel link here***|||
+|Anonymous Guys|***enter the Telegram channel link here***|||
+|SystemBD|***enter the Telegram channel link here***|||
+|Cyber Ghost Team|***enter the Telegram channel link here***|||
+|Desinformador Ruso|***enter the Telegram channel link here***|||
+|Stuxnet|***enter the Telegram channel link here***|||
+|Naton of Savors|***enter the Telegram channel link here***|||
+|Moses Staff|***enter the Telegram channel link here***|||
+|Digital-Ghost|***enter the Telegram channel link here***|||
+|Cyber Unit 89|***enter the Telegram channel link here***|||
+|Root Cyber 25|***enter the Telegram channel link here***|||
+|Anonymous Venezuela|***enter the Telegram channel link here***|||
+|Elite Squad|***enter the Telegram channel link here***|||
