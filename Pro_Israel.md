@@ -5,3 +5,4 @@
 |Garuna Ops|https://t.me/garunaops|||
 |Garuna Ops|https://t.me/+XhceuAZW9QJkOWJl|||
 |Predatory Sparrow|https://t.me/PredatorySparrowIL|||
+|RedEvilSog group|https://t.me/weredevilssupport,https://t.me/weredevilsog||X account https://x.com/redevilsog|||
