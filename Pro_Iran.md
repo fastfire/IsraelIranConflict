@@ -47,7 +47,6 @@
 |Cyberjund|***enter the Telegram channel link here***|||
 |Fad Team|***enter the Telegram channel link here***|||
 |R-9X|***enter the Telegram channel link here***|||
-|Serverkillers|***enter the Telegram channel link here***|||
 |Legion|***enter the Telegram channel link here***|||
 |Assasins ZXR|***enter the Telegram channel link here***|||
 |Spider X|***enter the Telegram channel link here***|||
