@@ -49,7 +49,7 @@
 |Fad Team|***enter the Telegram channel link here***|||
 |R-9X|***enter the Telegram channel link here***|||
 |Legion|***enter the Telegram channel link here***|||
-|Assasins ZXR|***enter the Telegram channel link here***|||
+|Assasins ZXR|https://t.me/Assasins_Official|||
 |Spider X|***enter the Telegram channel link here***|||
 |Team Azrael|***enter the Telegram channel link here***|||
 |Evil Morocco|***enter the Telegram channel link here***|||
