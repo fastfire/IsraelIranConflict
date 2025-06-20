@@ -37,7 +37,8 @@
 |Cyber Jihad Movement|https://t.me/CyberJihadMovement|||
 |Coup Team|https://t.me/CoupTeam|||
 |Server Killers|https://t.me/xServerKillers,@Server_Killers_bot, @Server_Killersx, @void_forums|| X account:https://x.com/Server_Killers|||
-|Cyber Islamic Resistance|***enter the Telegram channel link here***|||
+|Cyber Islamic Resistance|https://t.me/Mhwear98|||
+|Holy League|https://t.me/Mhwear96|||
 |Fredens|***enter the Telegram channel link here***|||
 |Liwaa Mohammad|***enter the Telegram channel link here***|||
 |#OpIsrael|***enter the Telegram channel link here***|||
