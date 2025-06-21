@@ -8,6 +8,6 @@
 |RedEvilSog group|https://t.me/weredevilssupport,https://t.me/weredevilsog||X account: https://x.com/redevilsog|||
 |Eagle7|***enter the Telegram channel link here***|||
 |NPFN|***enter the Telegram channel link here***|||
-|Night Hunters|***enter the Telegram channel link here***|||
+|Night Hunters|https://t.me/thenighthunterschat,https://t.me/+__nZCYRY1t02OGM1,https://t.me/+vbpFOVZzsAQ3NWQ1|||
 |Unkn0wn Gunm3n|***enter the Telegram channel link here***|||
 |Kaon|***enter the Telegram channel link here***|||
