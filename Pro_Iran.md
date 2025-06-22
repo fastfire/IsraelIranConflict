@@ -42,7 +42,7 @@
 |Fredens|***enter the Telegram channel link here***|||
 |Liwaa Mohammad|***enter the Telegram channel link here***|||
 |#OpIsrael|***enter the Telegram channel link here***|||
-|Lulzsec Black|***enter the Telegram channel link here***|||
+|Lulzsec Black|https://t.me/+mC1MrRnDp5FjNmQ0|||
 |Freedom Cyber Op|***enter the Telegram channel link here***|||
 |Blackswamp|***enter the Telegram channel link here***|||
 |Cyberjund|***enter the Telegram channel link here***|||
@@ -51,7 +51,7 @@
 |Legion|***enter the Telegram channel link here***|||
 |Assasins ZXR|https://t.me/Assasins_Official|||
 |Spider X|***enter the Telegram channel link here***|||
-|Team Azrael|***enter the Telegram channel link here***|||
+|Team Azrael|https://t.me/anonymous_Cr02x,https://t.me/IndoHaxSec2|||
 |Evil Morocco|***enter the Telegram channel link here***|||
 |Shadow Cyber Unit|***enter the Telegram channel link here***|||
 |Mysterious Team|***enter the Telegram channel link here***|||
