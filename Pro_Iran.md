@@ -47,7 +47,7 @@
 |Blackswamp|***enter the Telegram channel link here***|||
 |Cyberjund|***enter the Telegram channel link here***|||
 |Fad Team|***enter the Telegram channel link here***|||
-|R-9X|***enter the Telegram channel link here***|||
+|R-9X|https://t.me/+bgICy4GovA0yMWU1|||
 |Legion|***enter the Telegram channel link here***|||
 |Assasins ZXR|https://t.me/Assasins_Official|||
 |Spider X|***enter the Telegram channel link here***|||
