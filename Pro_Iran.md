@@ -39,7 +39,7 @@
 |Server Killers|https://t.me/xServerKillers,@Server_Killers_bot, @Server_Killersx, @void_forums|| X account:https://x.com/Server_Killers|||
 |Cyber Islamic Resistance|https://t.me/Mhwear98|||
 |Holy League|https://t.me/Mhwear96|||
-|Fredens|***enter the Telegram channel link here***|||
+|Fredens of Security|https://t.me/FredensOfSec||X account: https://x.com/FOS2025, Instagram account: https://www.instagram.com/fredensboys|
 |Liwaa Mohammad|***enter the Telegram channel link here***|||
 |#OpIsrael|***enter the Telegram channel link here***|||
 |Lulzsec Black|https://t.me/+mC1MrRnDp5FjNmQ0|||
