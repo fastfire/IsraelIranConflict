@@ -82,3 +82,4 @@
 |Anonymous Venezuela|***enter the Telegram channel link here***|||
 |Elite Squad|***enter the Telegram channel link here***|||
 |HIME666|https://t.me/revolusihime666||https://x.com/Himenisme666 - TOX ID SUPPORT DA2F5C22D988598A39A1BE9AA83B6B6CEF433BA269BA146DB7CA00D|
+|Sumatra Utara Cyber Team|https://t.me/+HG32VQZ93-4zMjE1|||
