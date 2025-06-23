@@ -15,7 +15,6 @@
 |Fatimion Cyber Team|https://t.me/hak993|||
 |USTINT|https://t.me/WeAreUst|||
 |Red Wolf Cyber|https://t.me/+jxENEiay2SRlYmQ8|||
-|Dark Storm Team|https://t.me/darkstormteam21|||
 |APT404|https://t.me/apt404team|||
 |Team Fearless|https://t.me/+YN6xK_zkLXY4ZjJl|||
 |Inteid|https://t.me/+GeILA8S0Bk4wYmRi|||
@@ -41,6 +40,7 @@
 |Holy League|https://t.me/Mhwear96|||
 |Fredens of Security|https://t.me/FredensOfSec||X account: https://x.com/FOS2025, Instagram account: https://www.instagram.com/fredensboys|
 |Liwaa Mohammad|***enter the Telegram channel link here***|||
+|RipperSec|https://t.me/RipperSec,https://t.me/RipperSecOfficial|||
 |#OpIsrael|***enter the Telegram channel link here***|||
 |Lulzsec Black|https://t.me/+mC1MrRnDp5FjNmQ0|||
 |Freedom Cyber Op|***enter the Telegram channel link here***|||
@@ -61,11 +61,11 @@
 |AGLegends|***enter the Telegram channel link here***|||
 |Unknowns Cyber Team|***enter the Telegram channel link here***|||
 |Anonymous Sana'a|***enter the Telegram channel link here***|||
-|Dark Storm Team|***enter the Telegram channel link here***|||
+|Dark Storm Team|https://t.me/darkstormchatt,https://t.me/darkstormteam21||X:https://x.com/DarkStormteam2?t=A30vcdDQNZqr7XNwbSp4ng&s=09|||
 |APT404|***enter the Telegram channel link here***|||
 |Golden Falcon|***enter the Telegram channel link here***|||
 |Pars Cyber|***enter the Telegram channel link here***|||
-|TengkorakCyberCrewz|***enter the Telegram channel link here***|||
+|TengkorakCyberCrewz|https://t.me/tengkorakcybercrewz|||
 |Bavar373|***enter the Telegram channel link here***|||
 |GhostIran|***enter the Telegram channel link here***|||
 |Gckul|***enter the Telegram channel link here***|||
@@ -74,7 +74,6 @@
 |SystemBD|***enter the Telegram channel link here***|||
 |Cyber Ghost Team|***enter the Telegram channel link here***|||
 |Desinformador Ruso|***enter the Telegram channel link here***|||
-|Stuxnet|***enter the Telegram channel link here***|||
 |Naton of Savors|***enter the Telegram channel link here***|||
 |Moses Staff|***enter the Telegram channel link here***|||
 |Digital-Ghost|***enter the Telegram channel link here***|||
