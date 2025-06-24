@@ -39,14 +39,14 @@
 |Cyber Islamic Resistance|https://t.me/Mhwear98|||
 |Holy League|https://t.me/Mhwear96|||
 |Fredens of Security|https://t.me/FredensOfSec||X account: https://x.com/FOS2025, Instagram account: https://www.instagram.com/fredensboys|
-|Liwaa Mohammad|***enter the Telegram channel link here***|||
+|Liwaa Mohammad|https://t.me/liwaamohammad|||
 |RipperSec|https://t.me/RipperSec,https://t.me/RipperSecOfficial|||
 |#OpIsrael|***enter the Telegram channel link here***|||
 |Lulzsec Black|https://t.me/+mC1MrRnDp5FjNmQ0|||
 |Freedom Cyber Op|***enter the Telegram channel link here***|||
-|Blackswamp|***enter the Telegram channel link here***|||
+|Blackswamp|https://t.me/ReportBattalion|||
 |Cyberjund|***enter the Telegram channel link here***|||
-|Fad Team|***enter the Telegram channel link here***|||
+|Fad Team|https://t.me/r3_6j|||
 |R-9X|https://t.me/+bgICy4GovA0yMWU1|||
 |Legion|***enter the Telegram channel link here***|||
 |Assasins ZXR|https://t.me/Assasins_Official|||
@@ -54,32 +54,32 @@
 |Team Azrael|https://t.me/anonymous_Cr02x,https://t.me/IndoHaxSec2|||
 |Evil Morocco|***enter the Telegram channel link here***|||
 |Shadow Cyber Unit|***enter the Telegram channel link here***|||
-|Mysterious Team|***enter the Telegram channel link here***|||
+|Mysterious Team|https://t.me/M_T_B_official|||
 |IranianCybers|***enter the Telegram channel link here***|||
 |Rootsec|***enter the Telegram channel link here***|||
-|Al-Qassam Cyber Brigades|***enter the Telegram channel link here***|||
+|Al-Qassam Cyber Brigades|https://t.me/al7qassam|||
 |AGLegends|t.me/AGLegends||dnb.com/de-de/upik-en.html|||
-|Unknowns Cyber Team|***enter the Telegram channel link here***|||
-|Anonymous Sana'a|***enter the Telegram channel link here***|||
+|Unknowns Cyber Team|https://t.me/unknowns_cyberteam|||
+|Anonymous Sana'a|https://t.me/anonymoussana|||
 |Dark Storm Team|https://t.me/darkstormchatt,https://t.me/darkstormteam21||X:https://x.com/DarkStormteam2?t=A30vcdDQNZqr7XNwbSp4ng&s=09|||
 |APT404|***enter the Telegram channel link here***|||
-|Golden Falcon|***enter the Telegram channel link here***|||
+|Golden Falcon|https://t.me/Golden_falcon_team|||
 |Pars Cyber|***enter the Telegram channel link here***|||
 |TengkorakCyberCrewz|https://t.me/tengkorakcybercrewz|||
 |Bavar373|***enter the Telegram channel link here***|||
 |GhostIran|***enter the Telegram channel link here***|||
 |Gckul|***enter the Telegram channel link here***|||
 |FreePalestine|***enter the Telegram channel link here***|||
-|Anonymous Guys|***enter the Telegram channel link here***|||
+|Anonymous Guys|https://t.me/AnonymousGuys0|||
 |SystemBD|***enter the Telegram channel link here***|||
 |Cyber Ghost Team|***enter the Telegram channel link here***|||
-|Desinformador Ruso|***enter the Telegram channel link here***|||
+|Desinformador Ruso|https://t.me/musicarusaesp|||
 |Naton of Savors|***enter the Telegram channel link here***|||
-|Moses Staff|***enter the Telegram channel link here***|||
+|Moses Staff|***enter the Telegram channel link here***|https://moses-staff.se||
 |Digital-Ghost|***enter the Telegram channel link here***|||
 |Cyber Unit 89|***enter the Telegram channel link here***|||
 |Root Cyber 25|t.me/Rootcyber25|||
-|Anonymous Venezuela|***enter the Telegram channel link here***|||
-|Elite Squad|***enter the Telegram channel link here***|||
+|Anonymous Venezuela|https://t.me/AnonymousVzla|||
+|Elite Squad|https://t.me/alnaaze757|||
 |HIME666|https://t.me/revolusihime666||https://x.com/Himenisme666 - TOX ID SUPPORT DA2F5C22D988598A39A1BE9AA83B6B6CEF433BA269BA146DB7CA00D|
 |Sumatra Utara Cyber Team|https://t.me/+HG32VQZ93-4zMjE1|||
