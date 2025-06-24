@@ -50,7 +50,7 @@
 |R-9X|https://t.me/+bgICy4GovA0yMWU1|||
 |Legion|***enter the Telegram channel link here***|||
 |Assasins ZXR|https://t.me/Assasins_Official|||
-|Spider X|***enter the Telegram channel link here***|||
+|Spider X|t.me/SpidrX2|||
 |Team Azrael|https://t.me/anonymous_Cr02x,https://t.me/IndoHaxSec2|||
 |Evil Morocco|***enter the Telegram channel link here***|||
 |Shadow Cyber Unit|***enter the Telegram channel link here***|||
@@ -58,7 +58,7 @@
 |IranianCybers|***enter the Telegram channel link here***|||
 |Rootsec|***enter the Telegram channel link here***|||
 |Al-Qassam Cyber Brigades|***enter the Telegram channel link here***|||
-|AGLegends|***enter the Telegram channel link here***|||
+|AGLegends|t.me/AGLegends||dnb.com/de-de/upik-en.html|||
 |Unknowns Cyber Team|***enter the Telegram channel link here***|||
 |Anonymous Sana'a|***enter the Telegram channel link here***|||
 |Dark Storm Team|https://t.me/darkstormchatt,https://t.me/darkstormteam21||X:https://x.com/DarkStormteam2?t=A30vcdDQNZqr7XNwbSp4ng&s=09|||
@@ -78,7 +78,7 @@
 |Moses Staff|***enter the Telegram channel link here***|||
 |Digital-Ghost|***enter the Telegram channel link here***|||
 |Cyber Unit 89|***enter the Telegram channel link here***|||
-|Root Cyber 25|***enter the Telegram channel link here***|||
+|Root Cyber 25|t.me/Rootcyber25|||
 |Anonymous Venezuela|***enter the Telegram channel link here***|||
 |Elite Squad|***enter the Telegram channel link here***|||
 |HIME666|https://t.me/revolusihime666||https://x.com/Himenisme666 - TOX ID SUPPORT DA2F5C22D988598A39A1BE9AA83B6B6CEF433BA269BA146DB7CA00D|
