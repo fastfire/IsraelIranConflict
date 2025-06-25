@@ -4,7 +4,7 @@
 |DieNet (backup channel)|https://t.me/dienet2|||
 |Keymous|https://t.me/Keymous|||
 |Cyber Fattah Team|https://t.me/fattah_iriii|||
-|Mr Hamza|https://t.me/mrhamzaofficiel|||
+|Mr Hamza|https://t.me/mrhamzaofficiel||mail:mrhamza0@tutamail.com ,X (Twitter): x.com/MrHamza_Op|||
 |Ghostsec|https://t.me/Ghostsecm|||
 |Arabian Ghosts|https://t.me/ARABIAN_GHOSTS|||
 |Madcap|https://t.me/MadCapZone|||
@@ -83,3 +83,5 @@
 |Elite Squad|https://t.me/alnaaze757|||
 |HIME666|https://t.me/revolusihime666||https://x.com/Himenisme666 - TOX ID SUPPORT DA2F5C22D988598A39A1BE9AA83B6B6CEF433BA269BA146DB7CA00D|
 |Sumatra Utara Cyber Team|https://t.me/+HG32VQZ93-4zMjE1|||
+|Khilafah_H4ckers|***enter the Telegram channel link here***|||
+|NoName05716|https://t.me/NoName05716_16,https://t.me/noname05716|||
