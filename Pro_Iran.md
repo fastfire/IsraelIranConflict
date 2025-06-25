@@ -85,3 +85,4 @@
 |Sumatra Utara Cyber Team|https://t.me/+HG32VQZ93-4zMjE1|||
 |Khilafah_H4ckers|***enter the Telegram channel link here***|||
 |NoName05716|https://t.me/NoName05716_16,https://t.me/noname05716|||
+|Ghostnet-x|https://t.me/+Vht6O3_VBZE4MDk1|||
