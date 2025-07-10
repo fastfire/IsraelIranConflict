@@ -87,3 +87,4 @@
 |NoName05716|https://t.me/NoName05716_16,https://t.me/noname05716|||
 |Ghostnet-x|https://t.me/+Vht6O3_VBZE4MDk1|||
 |Error T4U51F|https://t.me/ERROR_T4U51F|||
+|Team Cyber Zulfiqar|https://t.me/T34M_CYB3R|||
