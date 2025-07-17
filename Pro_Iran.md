@@ -11,7 +11,9 @@
 |Sylhet Gang-SG|https://t.me/SylhetGangSG1||Contact: @musab_63|VALID|
 |Team Insane Pakistan|https://t.me/teaminsanepk|||VALID|
 |313 Team|https://t.me/xX313XxTeam|||VALID|
-|Handala|https://t.me/handala_hack26, https://t.me/handala_channel, https://t.me/+4CffqtOZoZwxMTcx|https://handala.to, http://handala-hack.to, http://vmjfieomxhnfjba57sd6jjws2ogvowjgxhhfglsikqvvrnrajbmpxqqd.onion ||VALID|
+|Handala|https://t.me/handala_hack26|https://handala.to, http://handala-hack.to, http://vmjfieomxhnfjba57sd6jjws2ogvowjgxhhfglsikqvvrnrajbmpxqqd.onion||VALID|
+|Handala|https://t.me/handala_channel|https://handala.to, http://handala-hack.to, http://vmjfieomxhnfjba57sd6jjws2ogvowjgxhhfglsikqvvrnrajbmpxqqd.onion||VALID|
+|Handala|https://t.me/+4CffqtOZoZwxMTcx|https://handala.to, http://handala-hack.to, http://vmjfieomxhnfjba57sd6jjws2ogvowjgxhhfglsikqvvrnrajbmpxqqd.onion||VALID|
 |Fatimion Cyber Team|https://t.me/hak993|||VALID|
 |USTINT|https://t.me/WeAreUst|||VALID|
 |Red Wolf Cyber|https://t.me/+jxENEiay2SRlYmQ8|||VALID|
@@ -35,12 +37,16 @@
 |Garuda Error System|https://t.me/+ZMoidrbayTgyMzQ9|||VALID|
 |Cyber Jihad Movement|https://t.me/CyberJihadMovement|||VALID|
 |Coup Team|https://t.me/CoupTeam|||VALID|
-|Server Killers|https://t.me/xServerKillers,@Server_Killers_bot, @Server_Killersx, @void_forums|| X account:https://x.com/Server_Killers|VALID|
+|Server Killers|https://t.me/xServerKillers|| X account:https://x.com/Server_Killers|VALID|
+|Server Killers|https://t.me/Server_Killers_bot|| X account:https://x.com/Server_Killers|VALID|
+|Server Killers|https://t.me/Server_Killersx|| X account:https://x.com/Server_Killers|VALID|
+|Server Killers|https://t.me/void_forums|| X account:https://x.com/Server_Killers|VALID|
 |Cyber Islamic Resistance|https://t.me/Mhwear98|||VALID|
 |Holy League|https://t.me/Mhwear96|||VALID|
 |Fredens of Security|https://t.me/FredensOfSec||X account: https://x.com/FOS2025, Instagram account: https://www.instagram.com/fredensboys|VALID|
 |Liwaa Mohammad|https://t.me/liwaamohammad|||VALID|
-|RipperSec|https://t.me/RipperSec,https://t.me/RipperSecOfficial|||VALID|
+|RipperSec|https://t.me/RipperSec|||VALID|
+|RipperSec|https://t.me/RipperSecOfficial|||VALID|
 |#OpIsrael|***enter the Telegram channel link here***|||VALID|
 |Lulzsec Black|https://t.me/+mC1MrRnDp5FjNmQ0|||VALID|
 |Freedom Cyber Op|***enter the Telegram channel link here***|||VALID|
@@ -51,7 +57,8 @@
 |Legion|***enter the Telegram channel link here***|||VALID|
 |Assasins ZXR|https://t.me/Assasins_Official|||VALID|
 |Spider X|https://t.me/SpidrX2|||VALID|
-|Team Azrael|https://t.me/anonymous_Cr02x,https://t.me/IndoHaxSec2|||VALID|
+|Team Azrael|https://t.me/anonymous_Cr02x|||VALID|
+|Team Azrael|https://t.me/IndoHaxSec2|||VALID|
 |Evil Morocco|***enter the Telegram channel link here***|||VALID|
 |Shadow Cyber Unit|***enter the Telegram channel link here***|||VALID|
 |Mysterious Team|https://t.me/M_T_B_official|||VALID|
@@ -61,7 +68,8 @@
 |AGLegends|https://t.me/AGLegends||dnb.com/de-de/upik-en.html|VALID|
 |Unknowns Cyber Team|https://t.me/unknowns_cyberteam|||VALID|
 |Anonymous Sana'a|https://t.me/anonymoussana|||VALID|
-|Dark Storm Team|https://t.me/darkstormchatt,https://t.me/darkstormteam21||X:https://x.com/DarkStormteam2?t=A30vcdDQNZqr7XNwbSp4ng&s=09|VALID|
+|Dark Storm Team|https://t.me/darkstormteam21||X:https://x.com/DarkStormteam2?t=A30vcdDQNZqr7XNwbSp4ng&s=09|VALID|
+|Dark Storm Team|https://t.me/darkstormchatt||X:https://x.com/DarkStormteam2?t=A30vcdDQNZqr7XNwbSp4ng&s=09|VALID|
 |APT404|***enter the Telegram channel link here***|||VALID|
 |Golden Falcon|https://t.me/Golden_falcon_team|||VALID|
 |Pars Cyber|***enter the Telegram channel link here***|||VALID|
@@ -85,6 +93,7 @@
 |Sumatra Utara Cyber Team|https://t.me/+HG32VQZ93-4zMjE1|||VALID|
 |Khilafah_H4ckers|***enter the Telegram channel link here***|||VALID|
 |NoName05716|https://t.me/NoName05716_16,https://t.me/noname05716|||VALID|
+|NoName05716|https://t.me/NoName05716_16|||VALID|
 |Ghostnet-x|https://t.me/+Vht6O3_VBZE4MDk1|||VALID|
 |Error T4U51F|https://t.me/ERROR_T4U51F|||VALID|
 |Team Cyber Zulfiqar|https://t.me/T34M_CYB3R|||VALID|
