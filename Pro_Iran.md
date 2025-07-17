@@ -11,8 +11,8 @@
 |Sylhet Gang-SG|https://t.me/SylhetGangSG1||Contact: @musab_63|VALID|
 |Team Insane Pakistan|https://t.me/teaminsanepk|||VALID|
 |313 Team|https://t.me/xX313XxTeam|||VALID|
-|Handala|https://t.me/handala_hack26|https://handala.to, http://handala-hack.to, http://vmjfieomxhnfjba57sd6jjws2ogvowjgxhhfglsikqvvrnrajbmpxqqd.onion||VALID|
-|Handala|https://t.me/handala_channel|https://handala.to, http://handala-hack.to, http://vmjfieomxhnfjba57sd6jjws2ogvowjgxhhfglsikqvvrnrajbmpxqqd.onion||VALID|
+|Handala|https://t.me/handala_hack26|https://handala.to, http://handala-hack.to, http://vmjfieomxhnfjba57sd6jjws2ogvowjgxhhfglsikqvvrnrajbmpxqqd.onion||OFFLINE|
+|Handala|https://t.me/handala_channel|https://handala.to, http://handala-hack.to, http://vmjfieomxhnfjba57sd6jjws2ogvowjgxhhfglsikqvvrnrajbmpxqqd.onion||OFFLINE|
 |Handala|https://t.me/+4CffqtOZoZwxMTcx|https://handala.to, http://handala-hack.to, http://vmjfieomxhnfjba57sd6jjws2ogvowjgxhhfglsikqvvrnrajbmpxqqd.onion||VALID|
 |Fatimion Cyber Team|https://t.me/hak993|||VALID|
 |USTINT|https://t.me/WeAreUst|||VALID|
