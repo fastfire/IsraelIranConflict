@@ -10,7 +10,7 @@
 |Eagle7|***enter the Telegram channel link here***|||VALID|
 |NPFN|***enter the Telegram channel link here***|||VALID|
 |Night Hunters|https://t.me/thenighthunterschat|||VALID|
-|Night Hunters|https://t.me/+__nZCYRY1t02OGM1|||VALID|
+|Night Hunters|https://t.me/+__nZCYRY1t02OGM1|||EXPIRED|
 |Night Hunters|https://t.me/+vbpFOVZzsAQ3NWQ1|||VALID|
 |Unkn0wn Gunm3n|***enter the Telegram channel link here***|||VALID|
 |Kaon|***enter the Telegram channel link here***|||VALID|
