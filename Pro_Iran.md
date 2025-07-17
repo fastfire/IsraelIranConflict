@@ -27,7 +27,7 @@
 |Okto Dark Cyber Squad|https://t.me/+aC3mHL9kVhBhNzM1|||VALID|
 |APT Iran|https://t.me/APTIRAN|||VALID|
 |CyberAv3ngers|https://t.me/CyberAv3ngers|||VALID|
-|KZLGroup|https://t.me/KZLGroup|||VALID|
+|KZLGroup|https://t.me/KZLGroup|||OFFLINE|
 |Sons of Anarchy|https://t.me/R3V0XAn0nymou|||VALID|
 |Tunisian Maskers Cyber Force|https://t.me/CyberforceTn|||VALID|
 |Z-Alliance|https://t.me/+XPHrAwdh_n00MjZk|||VALID|
