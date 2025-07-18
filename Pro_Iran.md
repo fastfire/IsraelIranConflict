@@ -92,7 +92,7 @@
 |HIME666|https://t.me/revolusihime666||https://x.com/Himenisme666 - TOX ID SUPPORT DA2F5C22D988598A39A1BE9AA83B6B6CEF433BA269BA146DB7CA00D|VALID|
 |Sumatra Utara Cyber Team|https://t.me/+HG32VQZ93-4zMjE1|||VALID|
 |Khilafah_H4ckers|***enter the Telegram channel link here***|||VALID|
-|NoName05716|https://t.me/noname05716|||VALID|
+|NoName05716|https://t.me/noname05716|||OFFLINE|
 |NoName05716|https://t.me/NoName05716_16|||VALID|
 |Ghostnet-x|https://t.me/+Vht6O3_VBZE4MDk1|||VALID|
 |Error T4U51F|https://t.me/ERROR_T4U51F|||VALID|
