@@ -48,7 +48,7 @@
 |RipperSec|https://t.me/RipperSec|||VALID|
 |RipperSec|https://t.me/RipperSecOfficial|||VALID|
 |#OpIsrael|***enter the Telegram channel link here***|||VALID|
-|Lulzsec Black|https://t.me/+mC1MrRnDp5FjNmQ0|||VALID|
+|Lulzsec Black|https://t.me/+mC1MrRnDp5FjNmQ0|||EXPIRED|
 |Freedom Cyber Op|***enter the Telegram channel link here***|||VALID|
 |Blackswamp|https://t.me/ReportBattalion|||VALID|
 |Cyberjund|***enter the Telegram channel link here***|||VALID|
