@@ -95,5 +95,5 @@
 |NoName05716|https://t.me/noname05716|||OFFLINE|
 |NoName05716|https://t.me/NoName05716_16|||VALID|
 |Ghostnet-x|https://t.me/+Vht6O3_VBZE4MDk1|||VALID|
-|Error T4U51F|https://t.me/ERROR_T4U51F|||VALID|
+|Error T4U51F|https://t.me/ERROR_T4U51F|||OFFLINE|
 |Team Cyber Zulfiqar|https://t.me/T34M_CYB3R|||VALID|
