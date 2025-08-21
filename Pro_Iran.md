@@ -61,7 +61,7 @@
 |Team Azrael|https://t.me/IndoHaxSec2|||VALID|
 |Evil Morocco|***enter the Telegram channel link here***|||VALID|
 |Shadow Cyber Unit|***enter the Telegram channel link here***|||VALID|
-|Mysterious Team|https://t.me/M_T_B_official|||VALID|
+|Mysterious Team|https://t.me/M_T_B_official|||OFFLINE|
 |IranianCybers|***enter the Telegram channel link here***|||VALID|
 |Rootsec|***enter the Telegram channel link here***|||VALID|
 |Al-Qassam Cyber Brigades|https://t.me/al7qassam|||VALID|
