@@ -69,7 +69,7 @@
 |Unknowns Cyber Team|https://t.me/unknowns_cyberteam|||VALID|
 |Anonymous Sana'a|https://t.me/anonymoussana|||VALID|
 |Dark Storm Team|https://t.me/darkstormteam21||X:https://x.com/DarkStormteam2?t=A30vcdDQNZqr7XNwbSp4ng&s=09|VALID|
-|Dark Storm Team|https://t.me/darkstormchatt||X:https://x.com/DarkStormteam2?t=A30vcdDQNZqr7XNwbSp4ng&s=09|VALID|
+|Dark Storm Team|https://t.me/darkstormchatt||X:https://x.com/DarkStormteam2?t=A30vcdDQNZqr7XNwbSp4ng&s=09|OFFLINE|
 |APT404|***enter the Telegram channel link here***|||VALID|
 |Golden Falcon|https://t.me/Golden_falcon_team|||VALID|
 |Pars Cyber|***enter the Telegram channel link here***|||VALID|
