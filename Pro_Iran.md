@@ -64,7 +64,7 @@
 |Mysterious Team|https://t.me/M_T_B_official|||OFFLINE|
 |IranianCybers|***enter the Telegram channel link here***|||VALID|
 |Rootsec|***enter the Telegram channel link here***|||VALID|
-|Al-Qassam Cyber Brigades|https://t.me/al7qassam|||VALID|
+|Al-Qassam Cyber Brigades|https://t.me/al7qassam|||OFFLINE|
 |AGLegends|https://t.me/AGLegends||dnb.com/de-de/upik-en.html|VALID|
 |Unknowns Cyber Team|https://t.me/unknowns_cyberteam|||VALID|
 |Anonymous Sana'a|https://t.me/anonymoussana|||VALID|
