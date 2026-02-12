@@ -37,10 +37,10 @@
 |Garuda Error System|https://t.me/+ZMoidrbayTgyMzQ9|||VALID|
 |Cyber Jihad Movement|https://t.me/CyberJihadMovement|||VALID|
 |Coup Team|https://t.me/CoupTeam|||VALID|
-|Server Killers|https://t.me/xServerKillers|| X account:https://x.com/Server_Killers|VALID|
-|Server Killers|https://t.me/Server_Killers_bot|| X account:https://x.com/Server_Killers|VALID|
-|Server Killers|https://t.me/Server_Killersx|| X account:https://x.com/Server_Killers|VALID|
-|Server Killers|https://t.me/void_forums|| X account:https://x.com/Server_Killers|VALID|
+|Server Killers|https://t.me/xServerKillers|| X account:https://x.com/Server_Killers|OFFLINE|
+|Server Killers|https://t.me/Server_Killers_bot|| X account:https://x.com/Server_Killers|OFFLINE|
+|Server Killers|https://t.me/Server_Killersx|| X account:https://x.com/Server_Killers|OFFLINE|
+|Server Killers|https://t.me/void_forums|| X account:https://x.com/Server_Killers|OFFLINE|
 |Cyber Islamic Resistance|https://t.me/Mhwear98|||VALID|
 |Holy League|https://t.me/Mhwear96|||VALID|
 |Fredens of Security|https://t.me/FredensOfSec||X account: https://x.com/FOS2025, Instagram account: https://www.instagram.com/fredensboys|VALID|
