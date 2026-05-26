@@ -3,7 +3,7 @@
 |DieNet|https://t.me/DIeNlt||https://dienet-cc.github.io/public_html - https://diedetector.ct.ws - Contact: @dnsupportbot|VALID|
 |DieNet (backup channel)|https://t.me/dienet2|||VALID|
 |Keymous|https://t.me/Keymous|||VALID|
-|Cyber Fattah Team|https://t.me/fattah_iriii|||VALID|
+|Cyber Fattah Team|https://t.me/fattah_iriii|||OFFLINE|
 |Mr Hamza|https://t.me/mrhamzaofficiel||mail:mrhamza0@tutamail.com ,X (Twitter): x.com/MrHamza_Op|VALID|
 |Ghostsec|https://t.me/Ghostsecm|||VALID|
 |Arabian Ghosts|https://t.me/ARABIAN_GHOSTS|||VALID|
@@ -42,9 +42,9 @@
 |Server Killers|https://t.me/Server_Killersx|| X account:https://x.com/Server_Killers|OFFLINE|
 |Server Killers|https://t.me/void_forums|| X account:https://x.com/Server_Killers|OFFLINE|
 |Cyber Islamic Resistance|https://t.me/Mhwear98|||VALID|
-|Holy League|https://t.me/Mhwear96|||VALID|
+|Holy League|https://t.me/Mhwear96|||OFFLINE|
 |Fredens of Security|https://t.me/FredensOfSec||X account: https://x.com/FOS2025, Instagram account: https://www.instagram.com/fredensboys|VALID|
-|Liwaa Mohammad|https://t.me/liwaamohammad|||VALID|
+|Liwaa Mohammad|https://t.me/liwaamohammad|||OFFLINE|
 |RipperSec|https://t.me/RipperSec|||VALID|
 |RipperSec|https://t.me/RipperSecOfficial|||VALID|
 |#OpIsrael|***enter the Telegram channel link here***|||VALID|
